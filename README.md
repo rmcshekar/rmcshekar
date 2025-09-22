@@ -1,4 +1,4 @@
-# Chandrashekar Rachamma Mahadevappa (Rmc) 👋
+# Chandrashekar R M (Rmc) 👋
 
 **Test Architect | Senior Performance Engineer | QA Test Lead | Automation Testing Lead | Test Manager | SAP & FinTech | AI & Emerging Tech Enthusiast**  
 
